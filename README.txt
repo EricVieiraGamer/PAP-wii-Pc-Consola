@@ -1,1 +1,3 @@
+LINK DA PLAYLIST DA SERIE DO PROJETO
+
 https://www.youtube.com/playlist?list=PLmOQV4TNRW89IfE3LEJIq1EiNy1BPGbpy
